@@ -1,0 +1,11 @@
+---
+tags:
+  - FriendsFamily
+  - Society
+  - ArtistsAuthors
+aliases:
+  - "100013"
+---
+### Wednesday 13 January
+
+I caused some slight argument (with L.) this morning by trying to cook my breakfast in bed. I believe, however, that the good sense of the proceeding will make it prevail; that is, if I can dispose of the eggshells. L. went off to the New Statesman office this morning with his article. I lunched here, & then went to Days, to get more books. Days at 4 in the afternoon is the haunt of fashionable ladies, who want to be told what to read. A more despicable set of creatures I never saw. They come in furred like seals & scented like civets, condescend to pull a few novels about on the counter, & then demand languidly whether there is anything amusing? The Days' assistants are the humblest & most servile of men— They tow these aged Countesses & pert young millionairesses about behind them, always deferential, & profuse of ''Ladyships''. The West End of London fills me with aversion; I look into motor cars & see the fat grandees inside, like portly jewels in satin cases. The afternoons now have an elongated pallid look, as if it were neither winter nor spring. I came back to tea. L. arrived — having seen Gordon Sqre & Maynard (who says German finance is crumbling) & Saxon, who is recovering from Influenza. He had a headache, so, instead of going to the Co—op. meeting, we are staying at home.

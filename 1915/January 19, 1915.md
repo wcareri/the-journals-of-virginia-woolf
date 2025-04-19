@@ -1,0 +1,14 @@
+---
+tags:
+  - LiteraryWork
+  - MentalHealth
+  - FriendsFamily
+  - ArtistsAuthors
+aliases:
+  - "100019"
+---
+### Tuesday 19 January
+
+L's melancholy continues, so much so that he declared this morning he couldn't work. The consequence has been rather a melancholy day. Outside it is very cold & grey too. We walked in Richmond Park this afternoon; the trees all black, & the sky heavy over London; but there is enough colour to make it even lovelier today than on bright days, I think. The deer exactly match the bracken. But L. was melancholy, as I say. All I can do is to unsay all I have said; & to say what I really mean. Its a bad habit writing novels — it falsifies life, I think. However, after praising L's writing very sincerely for 5 minutes, he says ''Stop''; whereupon I stop, & theres no more to be said. When I analyse his mood, I attribute much of it to sheer lack of self confidence in his power of writing; as if he mightn't be a writer, after all; & being a practical man, his melancholy sinks far deeper than the half assumed melancholy of self conscious people like Lytton, & Sir Leslie & myself. There's no arguing with him.
+
+Well, I'm reading The Idiot. I cant bear the style of it very often; at the same time, he seems to me to have the same kind of vitality in him that Scott had; only Scott merely made superb ordinary people, & D. creates wonders, with very subtle brains, & fearful sufferings. Perhaps the likeness to Scott partly consists in the loose, free & easy, style of the translation. I’m also reading Michelet, plodding through the dreary middle ages; & Fanny Kemble's Life. Yesterday in the train I read The Rape of the Lock, which seems to me ''supreme'' — almost superhuman in its beauty & brilliancy — you really can't believe that such things are written down. I think one day I shall write a book of ''Eccentrics''. Mrs Grote shall be one. Lady Hester Stanhope. Margaret Fuller. Duchess of Newcastle. Aunt Julia?

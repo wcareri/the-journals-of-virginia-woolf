@@ -1,0 +1,16 @@
+---
+tags:
+  - WomenFeminism
+  - FriendsFamily
+  - Society
+  - ArtistsAuthors
+aliases:
+  - "100036"
+---
+### Monday February 15
+
+There is nothing to record of this morning, except my conviction that Mrs Le Grys is the best tempered woman in England, &, if she gets her 20 roomed house at Southampton, will make it a gigantic success. We have only to hint that we want dog soap, & she washes Max (who badly wanted it).
+
+We both went up to London this afternoon; L. to the Library, & I to ramble about the West End, picking up clothes. I am really in rags. It is very amusing. With age too one's less afraid of the superb shop women. These great shops are like fairies' palaces now. I swept about in Debenhartt's & Marshalls & so on, buying, as I thought with great discretion. The shop women are often very charming, in spite of their serpentine coils of black hair. (By the way, I met Walter Lamb at Dover Street station - A gentleman in frock coat, top hat, slip, umbrella &c. accosted me. I fairly laughed. It was old Wat. who had just been lunching with an M.P's wife, & seeing all the grandees. His satisfaction is amazing: it oozes out everywhere.) Then I had tea, & rambled down to Charing Cross in the dark, making up phrases & incidents to write about. Which, I expect, the way one gets killed.
+
+L. went to tea at Gordon Sqre where he saw Mrs Hutchinson, who is the present flame, but a very smoky one. Clive anyhow approves our scheme of a Periodical, & he is a man of business, whatever he may be as an artist. I bought a ten & eleven penny blue dress, in which I sit at this moment.

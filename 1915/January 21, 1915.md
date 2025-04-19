@@ -1,0 +1,13 @@
+---
+tags:
+  - LiteraryWork
+  - MentalHealth
+  - FriendsFamily
+  - Society
+  - ArtistsAuthors
+aliases:
+  - "100021"
+---
+### Thursday 21 January
+
+Maynard last night was sceptical about the value of writing on Arbitration. He was sceptical about the value of almost all work, save for the pleasure it gives the worker. He works only because he likes it. This of course, depressed poor L. once more. He was very melancholy this morning, & had to spend the day at the British Museum, which was bad enough, even if one believed in one's drudgery. Still I believe it will be an enormous success, &, if it doesn't prevent another war, it will put him along the eminent young men, which isn't altogether despicable. I went to the London Library — a stale culture smoked place, which I detest. Here I read Gilbert Murray on Immortality, got a book for L. & so home, missing my train, & reading the Letter to Dr Arbuthnot on Hammer—smith Station. L. came in late, having been up to Hampstead & seen Janet, who seems still the same; but so I think it must be, for months. Emphie annoyed with Margaret, who advises a proper rest cure ''which one doesn't do to the patient herself." Sylvia Milman came to dinner— After a good deal of bowing & scraping about China (which she has dutifully seen, in her endeavour to be advanced) we got on to memories of childhood which amused me, but bored L. I'm afraid. No one ever had a duller home than she had; but by sheer hard work, without a scrap of talent, she has plodded after the Advanced i.e. Nessa, until she lives in a flat, saves money to travel, & helps at the Omega. Ida is nursing in France; Enid & Maud have a chicken farm. Clearly there was good stuff in the Dean; though never a spark of enthusiasm. She stayed on & on, until L. half rose from his chair.

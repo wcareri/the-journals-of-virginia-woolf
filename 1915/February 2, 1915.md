@@ -1,0 +1,10 @@
+---
+tags:
+  - LiteraryWork
+  - ArtistsAuthors
+aliases:
+  - "100033"
+---
+### Tuesday 2 February
+
+Well, it is tomorrow; & we are certainly nearer to Hogarth than we were. We have done little else & thought of little else all day, so it is as well we have some profit-

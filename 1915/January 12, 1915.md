@@ -1,0 +1,13 @@
+---
+tags:
+  - WomenFeminism
+  - FriendsFamily
+  - Society
+aliases:
+  - "100012"
+---
+### Tuesday 12 January
+
+Today did not begin with a fire. Leonard however had to take Mrs Le Grys to task for Lizzie's sins. The poor woman could only agree. Since she knows she is going, she doesn't mind how many plates she breaks ­ if she would only go. Mrs Le G. finds it impossible to get a servant; she pays them only £16 a year however.
+
+Cecil came to luncheon, in mufti, I observed. In fact they are both entirely sick of the army, & see no chance of going to the front. Nevertheless, Cecil thinks of being a permanent soldier, because the life is better than a Barrister's life. On the other hand, he & Philip may go to the colonies. The odd thing about the Woolf family, to me, is the extreme laxness of it. In my family, the discussions & agitations that went on about the slightest change in one's way of life were endless; but with the W.'s it doesn't much seem to matter whether they turn farmer, run away with another man's wife, or marry a Polish Jew Tailors daughter. I remember how elaborately Aunt Mary concealed the fact that Hervey's young woman was a kind of shopkeeper, & how indefatigable she was until the engagement was broken off. Perhaps the W.'s haven't a family tradition. It gives a sense of freedom anyhow. From all this, obviously I have nothing to say. L. & Cecil walked to Kingston after lunch; I pottered about buying small fragments of meat & vegetables, & got some books out of the Library. I believe we shall find it more useful than the London Library, as no one, save ourselves, reads solid books. L. is now writing his article upon diplomacy, & I must go & typewrite. An entire fine day for a wonder.
