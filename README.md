@@ -29,6 +29,6 @@ This repository was created as part of my master's capstone project at the Maryl
 ## FAQ
 
 * **How many entries are there?** There are a total 1,616 journal entries.
-* **How long did this take you?** Roughly four months, with an average of two hours each day.
+* **How long did this take you?** Roughly four months, with an average of two hours each day, beginning in July 2023. This project took a backseat following my graduation, but was reedited and published fully in April 2025.
 * **What was your process?** I have physical books from publishing companies which aimed to create copies of her journals, though with their own annotations and remarks. I would retype these entries, ridding them of the editor notes, leaving behind the unedited words of Woolf.
 * **What did you learn about Woolf through this process?** I found it quite entertaining and relatable to hear how many troubles people had back then mirrored the issues we have today. Arguments with friends, drama with neighbors, thoughts on society, etc... We're not so different.
